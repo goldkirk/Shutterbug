@@ -6,7 +6,9 @@
 >
 > Alfred and Jason disagree, and get Dick and Bruce involved in figuring out their weird nextdoor neighbor kid’s life. Everything goes uphill from there.
 
-> Notes: For the purposes of this fic, Tim is 13, Jason is newly 16, and they both attend Gotham Academy right now. Dick is in Bludhaven, coming home to visit regularly. Damian, Cass, and Steph will join the family in future stories.
+#### Notes: 
+
+For the purposes of this fic, Tim is 13, Jason is newly 16, and they both attend Gotham Academy right now. Dick is in Bludhaven, coming home to visit regularly. Damian, Cass, and Steph will join the family in future stories.
 
 * * *
 
@@ -149,3 +151,7 @@ Tim can’t help but grin. _How is this my life,_ he thinks, and he’s in the c
 Honestly, though, he wouldn’t have it any other way. And tonight, he goes back out. Justice never seems to sleep, so Tim often doesn’t either. 
 
 _Worth it,_ he thinks, and turns to add his two cents to Jason’s monologue about school-mandated literature studies.
+
+### Notes:
+
+I hope you enjoyed so far! Have a lovely day <3

@@ -1,9 +1,13 @@
 # you keep dancing around what you want so bad 
 
 > Jason invites Tim over for the evening, and Tim has feelings about Bruce he doesn't know what to do with. Featuring "Batdad sure loves Jason" and also head kisses and Alfred's cookies.
-> Notes:
-> I wrote this on my phone while the baby I'm nannying napped, so forgive me if it's disjointed or has errors! I'll come back around for another edit later when I'm more awake lol.
-> Chapter title is once again from Latchkey Kids by Silversun Pickups.
+
+#### Notes:
+I wrote this on my phone while the baby I'm nannying napped, so forgive me if it's disjointed or has errors! I'll come back around for another edit later when I'm more awake lol.
+
+Chapter title is once again from Latchkey Kids by Silversun Pickups.
+
+* * *
 
 The cafeteria is crowded, the mystery meat is questionable, and Tim is getting a sneaking suspicion that Jason Todd has picked him as his new pet project for the month.
 
@@ -212,3 +216,7 @@ On the porch in front of the door, there’s a foil-covered plate, and a tupperw
 Something in Tim’s chest feels too tight and unbearably hot at the same time. He stares for a good minute or so. Then he turns away and sets off through the night to the nearest bus stop. He’ll get them later on, when he’s back. And maybe he’ll email Jason an apology tonight, instead of waiting. 
 
 As he sits on the near-empty bus, riding into the city on streets that get grungier as they go, Tim can’t help but feel a little bit loved, and if his photos that night are a little brighter, a little more cheerful than usual, more happy moments scattered in, no one in the blog comments seem to notice. But Tim knows. And he’s still thinking about it in the early hours of the morning, as he drifts off into a surprisingly easy sleep.
+
+#### Notes:
+
+Thank you SO much to all of you who left comments on the first chapter, holy cow! I am so blown away by your kindness and enthusiasm. I hope you enjoyed this chapter too, and I hope you're having a wonderful day <3
